@@ -1,4 +1,6 @@
-# Strogonoff de carne :cow:
+
+
+# Strogonoff de Carne:cow:
 
 ### Ingredientes
 
